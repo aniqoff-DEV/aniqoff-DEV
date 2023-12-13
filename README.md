@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @aniqoff-DEV
+- 👀 I’m interested in web and desktop appication developed
+- 🌱 I’m currently studying to become an information systems specialist (by industry)
+- 📫 How to reach me [...](https://vk.com/aniqoff)https://vk.com/aniqoff or email here akkaunt112twink@gmail.com
